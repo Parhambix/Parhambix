@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Parhambix
-- 👀 I’m interested in NFTs.
-- 🌱 I’m currently learning Solidity.
-- 💞️ I’m looking to collaborate on big NFT projects.
-- 📫 How to reach me IG: Parham.fakhri
+- 👀 I’m interested in Politics and Creating a Sustaible Future.
+- 🌱 I’m trying to provide Free Education for as many people as possible.
+- 💞️ I’m looking to collaborate on big URBAN PLANNING projects.
+- 📫 How to reach me? IG: Parham.fakhri
